@@ -1,0 +1,1 @@
+# sodimac_scrapp
